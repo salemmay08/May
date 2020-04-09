@@ -1,2 +1,0 @@
-# May
-jadilah diri sendiri 
